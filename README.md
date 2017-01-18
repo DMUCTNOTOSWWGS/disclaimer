@@ -8,7 +8,7 @@ The Devon Austin Wood-Thomas Github Organization, which may in the future be ref
 
 ## Ownership
 
-The work produced and developed by DAWT, including, but not limited to: code, text, artwork (digital and hand-made), and jokes, belong to DAWT, and individuals bearing the same name have no claim on the property, and attempts to claim the work as one's own due to similarities in the nomenclature of the group and an individual may be promptly shut down with a citation to this sentence. DAWT does not acknowledge nor recognize any similarities in art produced to individuals who may have similar names to the organization.
+The work produced and developed by DAWT, including, but not limited to: code, text, artwork (digital and hand-made), and jokes, belong to DAWT, and individuals bearing the same name have no claim on the property, and attempts to claim the work as one's own due to similarities in the nomenclature of the group and an individual may be promptly shut down with a citation to this sentence. DAWT does not acknowledge nor recognize any similarities in art produced to individuals who may have similar names to the organization. DAWT may claim full credit, if the organization chooses to do so, for monetary donations to any organization made by individuals bearing the same name.
 
 ## Penalties
 
